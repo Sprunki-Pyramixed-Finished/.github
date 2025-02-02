@@ -2,14 +2,13 @@
 
 **Sprunki Pyramixed Finished** is an exhilarating music creation game available on the Sprunkly Play platform, now featuring a thrilling horror twist. This captivating experience combines rhythm-based gameplay with character customization, making it a favorite for players of all ages.
 
-[Play Now](https://sprunkipyraminx.org/game/sprunki-pyramixed-finished)
+👉👉 Click to play [Sprunki Pyramixed Finished](https://sprunkly.org/game/sprunki-pyramixed-new-update)
 
 
 
 ## Other Sprunki Games
 
 [Sprunkly](https://sprunkly.org/)
-
 
 
 [Scrunkly](https://scrunkly.cc)
